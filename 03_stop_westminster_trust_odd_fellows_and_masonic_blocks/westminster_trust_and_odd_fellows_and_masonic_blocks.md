@@ -1,5 +1,3 @@
-Dixon #3
-
 Westminster Trust and Odd fellows and Masonic Blocks.
 
 The Westminster Trust building is the cities first true skyscraper. Built in 1911-1912 at a cost of $200,000 the building was designed by leading architects Gardiner and Mercer. consisted of 124 business offices and the Westminster Club, which occupied the top two floors. the building is designed in the Chicago School of commercial architecture, with clearly defined base, shaft and capital areas. 
