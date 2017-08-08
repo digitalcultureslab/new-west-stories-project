@@ -5,7 +5,7 @@ The station was previously owned by The Keg, but moved on due to alleged paranor
 Many staff would hear footsteps on the top floor. 
 One staff member heard a man scream "NO!" behind her, when nobody was actually there. Many people have seen a mysterious couple having dinner at table #23. 
 There are many other firsthand accounts of such incidents.
-Rumours about the tunnels underneath the station were used to smuggle or to transport patients from Woodlands Asylum
+Rumours about the tunnels underneath the station were used to smuggle or to transport patients from Woodlands Asylum.
 If this tunnels are real, it would be interesting to find out where exectly they went and what they were used for.
 
 Sources:
