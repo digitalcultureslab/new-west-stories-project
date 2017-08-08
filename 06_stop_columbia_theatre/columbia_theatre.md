@@ -1,6 +1,5 @@
 The Columbia Theatre
 
-
 Originally built in 1927 as a movie theatre, that opened its doors to the age of film and motion picture entertainment. 
 In 1994, a not-for-profit society purchased and restored the theatre and renamed it the Burr Theatre, after Raymond Burr.
 
@@ -9,8 +8,9 @@ In 1994, a not-for-profit society purchased and restored the theatre and renamed
 
 Burr was born in New Westminster and become a well-known actor in the late 1940's and early 1950's.
 He is best known for his role as a murder suspect in Alfred Hitchcock's "Rear Window" (1954) 
-and for his role in the original 1956 "Godzilla".
+and for his role in the original 1956 "Godzilla". Parts of the movie where filmed in New Westminster, as well as the movie I, Robot. 
 The New West born actor's final resting place can be found in the Fraser Cemetery.
+May 6, 2017 was the actor's 100th birthday and New Westminster stills honours his legacy, by celbrating his brithday.
 
 Sources:
 https://en.wikipedia.org/wiki/Raymond_Burr
