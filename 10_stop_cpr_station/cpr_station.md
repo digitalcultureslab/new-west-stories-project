@@ -1,11 +1,12 @@
 The CPR Station
 
-The Canadian Pacific Railway connected east Vancouver to New Westminster. During the First World War, families would go there to say their farewells to their husbands and brothers. 
+The Canadian Pacific Railway helped connect east Vancouver to New Westminster. During the First World War, families would go there to say their farewells to their husbands and brothers. 
 The station was previously owned by The Keg, but moved on due to alleged paranormal occurrences. 
 Many staff would hear footsteps on the top floor. 
 One staff member heard a man scream "NO!" behind her, when nobody was actually there. Many people have seen a mysterious couple having dinner at table #23. 
 There are many other firsthand accounts of such incidents.
-There are rumours about tunnels underneath the CPR station used to smuggle refugees, or to transport patients from Woodlands Asylum.
+Rumours about the tunnels underneath the station were used to smuggle or to transport patients from Woodlands Asylum
+If this tunnels are real, it would be interesting to find out where exectly they went and what they were used for.
 
 Sources:
 http://www.pocoheritage.org/pedia.php?tag=Westminster-Junction
