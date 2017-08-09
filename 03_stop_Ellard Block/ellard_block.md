@@ -1,3 +1,0 @@
-Ellard Block
-
-Named after James Ellard, a Royal Engineer who stayed in New Westminster after his detachment disbanded in 1863. Built by his estate after his death in 1899, it now houses a Starbucks and a martini bar called Drink Urban Lounge. The Building was designed by a member of the Odd fellows Lodge, whos original building you just visited. The Architects, Clow and Welsh built many of the buildings in New Westminsters Down Town core after the great fire.  
