@@ -2,12 +2,24 @@
 
 The history walk starts here. 
 
-The walk will take you here.
+[INSERT PIC OF THE ANVIL SALUTE - 158_web.jpg]
 
-Looking East, toward the high-rise condominiums on the right-hand, or water, side of Columbia Street, you can see the white façade of the old Trapp building ("Trapp" is written on the front of it). This building, built in XXXX, will orient you throughout the walk. Across the street is the Westminster Trust building, with a Waves Coffee shop in it. That's another good orienting landmark. Both are older than the awesome new Anvil Centre where you find yourself now.
+The name of the Anvil Centre harkens back to a New Westminster tradition: Firing the anvil, a traditional Hyack Brigade salute on Queen's Birthday in which gunpowder is placed between two anvils and exploded--the accompanying photo is of an early celebration. 
 
-In the photo, the large "CAFE" sign is roughly your position right now, with the Train station across the street, slightly behind us. 
+Officially opened in 2014, the Anvil Centre is designed to accommodate a wide range of events, arts and cultural activities, and City and community-led programs.  Anvil Centre is a vibrant gathering space and is New Westminster’s newest commercial and cultural hub.
 
-Pictures will try to orient you and narratives are taken from both architectural and personal interest points of view. 
+The Anvil Centre is home to: 
 
-Follow along and find out a few interesting tidbits about New Westminster, Western Canada's first capital. 
+- Anvil Conference Centre
+- New Westminster Museum & Archives
+- Canadian Lacrosse Hall of Fame
+- Tourism New Westminster
+- New Westminster New Media Gallery
+- Anvil Centre Performing Arts Theatre
+- The Community Art Space
+
+[INSERT PIC 2097_web.jpg]
+
+The photo above looks east, with the "CAFE" sign roughly the location upon which Anvil Centre now sits. Further along, the Westminster Trust Building is on the left-hand side of the photo--it now has a Waves Coffee Shop in the lobby--and the old British Columbia Electric Railway barn is across the street--it's now a Salvation Army Store with the monument "Wait for Me, Daddy" next to it. 
+
+As you walk East along Columbia St., we'll tell you a little about some of the buildings or historical points of interest along the way. Follow along and find out a few interesting tidbits about New Westminster, British Columbia's first capital. 
