@@ -29,6 +29,22 @@ Stop 3: Ellard Block
 
 ---
 
+Stop 4: federal Building and Post Office
+
+http://www.historicplaces.ca/en/rep-reg/place-lieu.aspx?id=3415
+http://www.nwheritage.org/database/heritage.php?operation=Display&id=382
+http://www.nwheritage.org/database/images/116_web.jpg
+http://www.nwheritage.org/database/images/1753_web.jpg
+
+---
+
+Stop 5: Eaton's
+
+https://en.wikipedia.org/wiki/Timothy_Eaton
+https://en.wikipedia.org/wiki/Eaton%27s#The_Toronto_Santa_Claus_Parade
+
+---
+
 Windsor Hotel:
 
 http://www.historicplaces.ca/en/rep-reg/image-image.aspx?id=3497#i1
