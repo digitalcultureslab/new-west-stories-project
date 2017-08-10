@@ -5,6 +5,10 @@ image files: http://www.nwheritage.org/phototour/citylife/offices&buildings_inte
 
 The Westminster Trust building is the city's first true skyscraper. Built in 1911-1912 at a cost of $200,000, the building was designed by leading architects Gardiner and Mercer. Consisting of 124 business offices and the Westminster Club, which occupied the top two floors. The building is designed in the style of [Chicago School](https://en.wikipedia.org/wiki/Chicago_school_(architecture)) of commercial architecture, with clearly defined base, shaft and capital areas. 
 
+image files: http://www.nwheritage.org/database/images/192.jpg 
+
+**There is a photo of the modern day Trust building in the folder, taken by Dixon Cohee**
+
 **Masonic and Oddfellows Block**
 
 Fraternal orders The Oddfellows and Masons funded buildings on this block, first designed by George Grant in 1887. Grant designed many of the early buildings in New Westminster. Buildings belonging to the Oddfellows and Masons burned down twice, once in 1891, with both societies rebuilding on the same spot; and then a second time in 1898 during the Great Fire where this building was one of the earliest to burn. However, after the Great Fire, much of the Masonic Lodge's foundation was left intact and was reused in the reconstruction. In 1912, both fraternal societies moved out and the two blocks were joined by realtor F. J. Hart. The building standing here now was designed in the [Romanesque Revival Style](https://en.wikipedia.org/wiki/Romanesque_Revival_architecture). One of the Architects, Charlse H. Clow was responsible for rebuilding much of New Westminster after the Great Fire and was a member of the Oddfellows lodge that met here.
