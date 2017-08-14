@@ -1,6 +1,9 @@
-The Windsor Hotel
+**The Windsor Hotel**
 
-Images in folder taken from here: http://www.historicplaces.ca/en/rep-reg/image-image.aspx?id=3497#i1
-Fonds at Archive is here: https://www.memorybc.ca/windsor-hotel-fonds
+[INSERT PIC - layered_windsor_hotel_image_2005-1912.jpg]
 
-Rushed to completion after the Great Fire, the Windsor Hotel was one of the few wooden structures built on Columbia Street in a city paranoid of potential fires. Designed by architects Guenther and Van-aken in the Victorian Italianate style the building was a proud but old-fashioned block on a street that was proud of its modernity. in 1904 the rooms were $1.00 - $1.50 with a special rate for theatrical parties. The hotel was the first studio for [CKNW radio](https://en.wikipedia.org/wiki/CKNW) from 1944-1950. the station broadcast live to Columbia street via loudspeakers. Although much altered, the hotel retains some later original features such as neon signs from the 1940's marking the separate entrances for "men" and "ladies and escorts".
+In the image above, the original Windsor Hotel of 1912 overlays a photo of the Windsor Hotel in 2005. 
+
+Rushed to completion after the Great Fire, the Windsor Hotel was one of the few wooden structures built on Columbia Street in a city paranoid of potential fires. Designed by architects Guenther and Van-aken in the Victorian Italianate Style, the building was a proud but old-fashioned block on a street that was proud of its modernity. In 1904, the rooms were $1.00 - $1.50 with a special rate for theatrical parties. 
+
+The hotel was also the first studio for [CKNW radio](https://en.wikipedia.org/wiki/CKNW) from 1944-1950. The station broadcast live to Columbia street via loudspeakers. Although much altered, the hotel retains some unique features, such as neon signs from the 1940's marking the separate entrances for "men" and "ladies and escorts."
