@@ -18,7 +18,7 @@ The Anvil Centre is home to:
 - Anvil Centre Performing Arts Theatre
 - The Community Art Space
 
-[INSERT PIC 2097_web.jpg]
+[INSERT PIC 2541_web.jpg]
 
 The photo above looks east, with the "CAFE" sign roughly the location upon which Anvil Centre now sits. Further along, the Westminster Trust Building is on the left-hand side of the photo--it now has a Waves Coffee Shop in the lobby--and the old British Columbia Electric Railway barn is across the street--it's now a Salvation Army Store with the monument "Wait for Me, Daddy" next to it. 
 
