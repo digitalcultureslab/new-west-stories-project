@@ -1,6 +1,6 @@
 **T. Eaton Company**
 
-[INSERT PIC - 2860_web.jpg]
+[INSERT PIC - 1367_web.jpg]
 
 Eaton's was a major cultural entity in Canada throughout the 1950s through to the 1980s. A retail department chain that introduced Canada to mail order catalogues, it was one of the first major retail chains in the country. One might say that Eaton's was Canada's first Amazon website. Storefronts such as this one served outlying communities both as a space to purchase goods and as a mail order base of shipments to other parts of the province. 
 
